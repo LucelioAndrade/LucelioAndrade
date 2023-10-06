@@ -6,7 +6,7 @@ Tenho conhecimentos em eletronica industrial (não trabalho na área), e tecnolo
 
 Atualmente estudo na Cubos Academy.
 
-Atualmente não estou jogando nada pois estou focado nos estudos. Mas meu jogo preferido é o Dark Souls.
+No momento, não estou jogando nada pois estou focado nos estudos. Mas meu jogo preferido é o Dark Souls.
 
 Sou casado, tenho 3 filhos e 1 neto.
 
